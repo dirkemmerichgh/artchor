@@ -11,5 +11,5 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/) [exte
 
 ## !!!!  Nächste Termine  !!!! 
 
-|So. 25.01.26|13:00|Konfi Hans-Peter Gies ev. Kirche Langsdorf|
-
+|So. 19.04.26|10:00|Konfirmation ev. Kirche Langsdorf|
+|Sa. 30.05.26|19:00|Frühjahrskonzert in der ev. Kirche Langsdorf
