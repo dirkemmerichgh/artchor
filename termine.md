@@ -4,7 +4,10 @@
 
 ## Januar
 - So. 25.01.   13:00   Entpflichtung Hans-Peter Gies ev. Kirche Langsdorf
-
+- 
+## April
+- So. 19.04    10:00   Konfirmation ev. Kirche Langsdorf
+- 
 ## Mai
 - Sa. 30.05    19:00   Frühjahrskonzert in der ev. Kirche Langsdorf
 
