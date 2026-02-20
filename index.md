@@ -11,5 +11,5 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/) [exte
 
 ## !!!!  Nächste Termine  !!!! 
 
-|So. 25.01.26|13:00|Entpflichtung Hans-Peter Gies ev. Kirche Langsdorf|
+|So. 25.01.26|13:00|Konfi Hans-Peter Gies ev. Kirche Langsdorf|
 
